@@ -1,0 +1,1 @@
+Just a place to archive thoughts about future.
